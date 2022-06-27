@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-👋 Hai, I am Basri, Software Engineer at Icon+
+👋 Hai, I am Basri, Software Engineer Freelance at Agree
 
 
 
